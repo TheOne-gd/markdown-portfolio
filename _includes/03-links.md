@@ -1,1 +1,1 @@
-[GitHub](http://github.com/TheOne-gd/)
+[GitHub](http://github.com)
